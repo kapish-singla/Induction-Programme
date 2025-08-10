@@ -9,4 +9,5 @@ Following the Gurudwara visit, we gathered in the auditorium, where we were intr
 # **Universal Human Values**
 The day began with a session on Universal Human Values, conducted by Dr. Priya Darshni. Although she holds a PhD in Electronics, she has chosen to focus her career on this field, bringing a unique perspective to the subject. The session explored the ideas of happiness and contentment, highlighting how these states of mind influence our everyday actions and decisions. Her approach offered fresh insights into practical ways of achieving genuine happiness. The discussion was further enriched through real-life examples shared by both the speaker and participants, making the concepts easier to understand and apply.
 
-
+# Satyam Scolarship
+Following the Human Values session, we were introduced to the Satyam Scholarship program. The representatives spoke about Buddy4Study, a major private scholarship platform that collaborates with numerous companies, institutions, and foundations across India. They shared its wide reach among students nationwide and explained how it offers opportunities based on both merit and financial need. The session also included guidance on the registration process and eligibility, with a live demonstration of a student successfully signing up.
