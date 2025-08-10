@@ -10,7 +10,16 @@ Following the Gurudwara visit, we gathered in the auditorium, where we were intr
 The day began with a session on Universal Human Values, conducted by Dr. Priya Darshni. Although she holds a PhD in Electronics, she has chosen to focus her career on this field, bringing a unique perspective to the subject. The session explored the ideas of happiness and contentment, highlighting how these states of mind influence our everyday actions and decisions. Her approach offered fresh insights into practical ways of achieving genuine happiness. The discussion was further enriched through real-life examples shared by both the speaker and participants, making the concepts easier to understand and apply.
 
 # Satyam Scolarship
-Following the Human Values session, we were introduced to the Satyam Scholarship program. The representatives spoke about Buddy4Study, a major private scholarship platform that collaborates with numerous companies, institutions, and foundations across India. They shared its wide reach among students nationwide and explained how it offers opportunities based on both merit and financial need. The session also included guidance on the registration process and eligibility, with a live demonstration of a student successfully signing up.
+Following the Human Values session, we were introduced to the Satyam Scholarship initiative. The speakers highlighted Buddy4Study, a leading private scholarship platform that collaborates with numerous companies, institutions, and foundations across India. We learned about its reach among students nationwide, its merit- and need-based awards, and the simple registration process, which was demonstrated live during the session.
+# Personality Development
+The next session was conducted by Dr. Arvind Dhingra, who spoke on personality development and the importance of building a positive presence in college. He emphasized making new friends, engaging with peers, and maintaining a neat, presentable appearance. To make the session interactive, he involved students in team-based games.
+
+# Games
+In the first game, 11 boys and 11 girls formed separate groups, each linking their arms in a crisscross pattern—boys holding only boys’ hands, and girls holding only girls’ hands. The challenge was to untangle themselves back into a straight line without breaking the chain. The boys’ team completed the task first and won chocolates.
+
+The second game brought everyone into a large circle, holding hands while facing the center. The twist was that they had to turn and face outward without letting go of each other’s hands—a task that proved too tricky, as no group succeeded this time.
+
+
 
 # Reflection
 
