@@ -8,5 +8,6 @@ After gurudwara we got to the auditorium there we got knowledge about the colleg
 
 # Day 2 Universal Human Values 
 
-Today 
+The day began with a session on Universal Human Values, conducted by Dr. Priya Darshni. Although she holds a PhD in Electronics, she has chosen to focus her career on this field, bringing a unique perspective to the subject. The session explored the ideas of happiness and contentment, highlighting how these states of mind influence our everyday actions and decisions. Her approach offered fresh insights into practical ways of achieving genuine happiness. The discussion was further enriched through real-life examples shared by both the speaker and participants, making the concepts easier to understand and apply.
+
 
