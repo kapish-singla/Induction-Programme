@@ -11,3 +11,7 @@ The day began with a session on Universal Human Values, conducted by Dr. Priya D
 
 # Satyam Scolarship
 Following the Human Values session, we were introduced to the Satyam Scholarship program. The representatives spoke about Buddy4Study, a major private scholarship platform that collaborates with numerous companies, institutions, and foundations across India. They shared its wide reach among students nationwide and explained how it offers opportunities based on both merit and financial need. The session also included guidance on the registration process and eligibility, with a live demonstration of a student successfully signing up.
+
+# Reflection
+
+The day’s sessions highlighted how values and opportunities go hand in hand. The Human Values lesson reminded us that true happiness stems from self-awareness, meaningful relationships, and contributing positively to society. The Satyam Scholarship discussion complemented this by showing how resources and support can empower deserving students to pursue their aspirations. Together, they underscored that personal growth is not only about internal virtues but also about making the most of the opportunities that align with those values.
