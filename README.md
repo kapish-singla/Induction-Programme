@@ -2,8 +2,8 @@
 
 # Day 1(30-07-2025)
 
-My first day at Guru Nanak Dev Engineering College began alongside other B.Tech students with a visit to the Gurudwara at 8:30 a.m. There, we attended the Shabad Kirtan and observed how the Gurudwara’s structure, resembling a ship, symbolized the guiding path ahead for us as students. The serene atmosphere set a positive tone for the day, and we were also served refreshing tea before moving to the next session.
-Following the Gurudwara visit, we gathered in the auditorium, where we were introduced to the college’s infrastructure, achievements, and legacy. The occasion was marked by the celebration of 70 years of excellence at the institution. We also had the opportunity to meet our respected teachers, Heads of Departments, and distinguished guests, who shared valuable insights about the college’s vision and opportunities. 
+My first day at **Guru Nanak Dev Engineering College** began alongside other B.Tech students with a visit to the Gurudwara at 8:30 a.m. There, we attended the **Shabad Kirtan** and observed how the Gurudwara’s structure, resembling a ship, symbolized the guiding path ahead for us as students. The serene atmosphere set a positive tone for the day, and we were also served refreshing tea before moving to the next session.
+Following the Gurudwara visit, we gathered in the auditorium, where we were introduced to the college’s infrastructure, achievements, and legacy. The occasion was marked by the celebration of **70 years of excellence** at the institution. We also had the opportunity to meet our respected teachers, Heads of Departments, and distinguished guests, who shared valuable insights about the college’s vision and opportunities. 
 
 # Day 2 Universal Human Values 
 
