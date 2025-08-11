@@ -48,9 +48,12 @@ Next, **Mr. Manpreet Singh**, a professional fitness coach, delivered an energet
 
 The day concluded with an impactful talk by **Brigadier P.S. Cheema**, who spoke passionately about discipline, commitment, and staying true to one’s life goals. Drawing from his own experiences, he offered valuable insights that left a lasting impression.
  # Day 6
- The day began with our regular class sessions in the morning, keeping the usual academic pace. Later, we gathered in the auditorium for a series of interactive and thought-provoking sessions. The first was led by Dr. Lakhvir Singh Khana, in-charge of CML, which turned out to be more of a lively student–teacher interaction than a formal lecture. The hall was buzzing with energy and curiosity.
+ # CML
+The day began with our regular class sessions in the morning, keeping the usual academic pace. Later, we gathered in the auditorium for a series of interactive and thought-provoking sessions. The first was led by Dr. Lakhvir Singh Khana, in-charge of CML, which turned out to be more of a lively student–teacher interaction than a formal lecture. The hall was buzzing with energy and curiosity.
+# Shabad
 Following this, the college arranged a shabad to offer our respects and connect spiritually. The serene atmosphere during the recitation brought a sense of calm and reflection to everyone present.
 
+# NSS
 Next, Dr. Jasvir Singh Grewal, in-charge of NSS, took the stage. He explained that the National Service Scheme goes far beyond tree-planting, touching many aspects of social responsibility. A video he presented—showing an island where birds were dying due to plastic ingestion—left a lasting impact. Seeing plastic bottle caps and other waste inside the birds was both shocking and saddening, sparking serious concern about environmental care.
 
 The day wrapped up with engaging activities organized by NSS members, bringing a sense of teamwork and lightheartedness after the more serious discussions.
