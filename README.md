@@ -36,3 +36,9 @@ Later, Mr. Gautam Muria began his auditorium session with an engaging video on m
 # Universal Human Values
 
 The session ended with Ms. Priya Darshani addressing Universal Human Values and the importance of mental well-being. She spoke about dealing with depression, staying self-aware, and building supportive relationships, leaving the audience with a thoughtful reminder to value both their own and others’ mental health.
+
+# Day 4
+# Millet Super Food
+Today’s schedule had fewer induction events, but a notable session on Millet – The Superfood was delivered by Mrs. Shaffy Makkar, Vice Principal at JHSKMS Ludhiana, university topper, with 24 years of teaching and research experience, and a representative of Punjab at the National Science Exhibition. She began by asking students if they liked millet, using this to open a discussion on its role as a highly nutritious superfood. The talk covered the various types of millets, their health benefits such as improved digestion and sustained energy, and simple yet effective cooking techniques to incorporate them into daily diets.
+# Day 5
+
