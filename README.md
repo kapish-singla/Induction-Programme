@@ -42,3 +42,12 @@ The session ended with Ms. Priya Darshani addressing Universal Human Values and 
 Today’s schedule had fewer induction events, but a notable session on Millet – The Superfood was delivered by Mrs. Shaffy Makkar, Vice Principal at JHSKMS Ludhiana, university topper, with 24 years of teaching and research experience, and a representative of Punjab at the National Science Exhibition. She began by asking students if they liked millet, using this to open a discussion on its role as a highly nutritious superfood. The talk covered the various types of millets, their health benefits such as improved digestion and sustained energy, and simple yet effective cooking techniques to incorporate them into daily diets.
 # Day 5
 
+Here’s a fully rephrased and restructured version so it doesn’t resemble your original wording at all:
+
+---
+
+The day at GNDEC proved to be both engaging and inspiring. It began with an address by **Dr. Parminder Singh**, Dean of Student Welfare, who introduced us to the diverse student-led initiatives on campus and explained how the Student Welfare Committee actively supports learners in both academic and personal growth.
+
+Next, **Mr. Manpreet Singh**, a professional fitness coach, delivered an energetic session on the importance of maintaining both physical and mental fitness, especially for engineering students who often face long hours of study. He shared practical exercise routines aimed at building strength, enhancing stamina, and promoting overall well-being—some of which I’m eager to try out.
+
+The day concluded with an impactful talk by **Brigadier P.S. Cheema**, who spoke passionately about discipline, commitment, and staying true to one’s life goals. Drawing from his own experiences, he offered valuable insights that left a lasting impression.
