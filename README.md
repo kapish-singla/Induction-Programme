@@ -28,3 +28,9 @@ The sessions together offered a balanced mix of mindset, opportunity, and person
 # Day 3 
 # **Causmic Club**
 We were also introduced to the Caustic Club, the student body responsible for managing various events and activities on campus. They explained how their work is organized into different teams, such as a database and IT group, a social media group, and other specialized roles. The club plays a key role in hosting induction programmes, managing events in the auditorium, and ensuring smooth coordination among teams. They spoke about how they can also assist students in general matters—like offering study guidance, recommending coding languages, or advising on laptop purchases. They showcased their social media presence and played a few videos highlighting past events. The members also shared how they handle sponsorships and raise funds for activities. They also showed full process of signing github . In the end, they took one or two queries from the audience and reiterated that they are always available for help whenever needed.
+
+# Motorsports
+
+Later, Mr. Gautam Muria began his auditorium session with an engaging video on motorsports, instantly capturing everyone’s attention. He followed it with a short discussion on what motorsports truly involve, asking a couple of quick questions to the audience about cars and racing to spark interaction. He highlighted how motorsports is not just a thrilling sport but also a field deeply connected to engineering—requiring precision, innovation, and problem-solving skills. The talk emphasized how engineering students can draw inspiration from the teamwork, technology, and dedication seen in motorsports, applying those same principles in their own academic and professional journeys.
+
+
