@@ -33,4 +33,6 @@ We were also introduced to the Caustic Club, the student body responsible for ma
 
 Later, Mr. Gautam Muria began his auditorium session with an engaging video on motorsports, instantly capturing everyone’s attention. He followed it with a short discussion on what motorsports truly involve, asking a couple of quick questions to the audience about cars and racing to spark interaction. He highlighted how motorsports is not just a thrilling sport but also a field deeply connected to engineering—requiring precision, innovation, and problem-solving skills. The talk emphasized how engineering students can draw inspiration from the teamwork, technology, and dedication seen in motorsports, applying those same principles in their own academic and professional journeys.
 
+# Universal Human Values
 
+The session ended with Ms. Priya Darshani addressing Universal Human Values and the importance of mental well-being. She spoke about dealing with depression, staying self-aware, and building supportive relationships, leaving the audience with a thoughtful reminder to value both their own and others’ mental health.
