@@ -58,3 +58,6 @@ Following this, the college arranged a shabad to offer our respects and connect 
 Next, Dr. Jasvir Singh Grewal, in-charge of NSS, took the stage. He explained that the National Service Scheme goes far beyond tree-planting, touching many aspects of social responsibility. A video he presented—showing an island where birds were dying due to plastic ingestion—left a lasting impact. Seeing plastic bottle caps and other waste inside the birds was both shocking and saddening, sparking serious concern about environmental care.
 
 The day wrapped up with engaging activities organized by NSS members, bringing a sense of teamwork and lightheartedness after the more serious discussions.
+
+# **Conclusion**
+Overall, the induction days at GNDEC have been a mix of learning, fun, and inspiration. From peaceful moments during the shabad to hearing about opportunities like the Satyam Scholarship, and from engaging personality development games to discovering student-led clubs, every session had something to take away. We learned about teamwork, fitness, and caring for the environment, while also meeting people who will guide us throughout our college journey. It’s been a great start that has motivated me for the days ahead.
